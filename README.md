@@ -1,4 +1,4 @@
-# Who is Nico Dimaunahan
+# Who is Nico Dimaunahan?
 
 **Short Information**
 - Name: *Henrico Raphael S. Dimaunahan*
